@@ -1,2 +1,2 @@
 # learnitgenerator
-I want learn my futur job, IA help me to set up
+I’m looking to learn about my future career and AI assistant has helped me prepare
